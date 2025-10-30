@@ -1,1 +1,1 @@
-# Practical-9
+# Practical-9 Стрелков Андрей
